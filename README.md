@@ -10,3 +10,12 @@ Trabajadores (Posible romance min): Kyboi (Director), K4hn (Prof Ed Fis, ex mili
 
 
 Notas: Posible NSFW? (Tick para desactivarlo en opciones?), Elegir Motor donde se va a hacer, Idea de mapa?, Posible ruta con el soto y el mogu (Bastante complejidad, Requerimientos necesario), Mecánica de red social, Bad ending? (Haku O 165), Referencia a perro computador?, RUTA HAREM? (Nian esta en todas las posibles), Referencia a la saga yakuza
+
+
+
+
+
+
+
+
+ola soy el nian aca escribire mis ideas: Un easter egg donde haya una parte de ir al baño como tipo "El soto va al baño a refrescarse/lavarse la cara etc y entras a mear al baño y la pantalla se va a negro, Pero si clickeas una puerta especifica entras esta el waton el baño y lo meas
