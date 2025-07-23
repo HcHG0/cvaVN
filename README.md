@@ -13,7 +13,7 @@ Notas: Posible NSFW? (Tick para desactivarlo en opciones?), Elegir Motor donde s
 
 
 
-Hay que incluir al mogu de alguna manera en todo esto y hay 2 opciones; Hacerlo como una ruta romance y la ruta del soto y del mogu se desbloquea con los 2, o hacerlo un extra
+H:Hay que incluir al mogu de alguna manera en todo esto y hay 2 opciones; Hacerlo como una ruta romance y la ruta del soto y del mogu se desbloquea con los 2, o hacerlo un extra
 
 
 
